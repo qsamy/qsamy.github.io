@@ -1,1 +1,0 @@
-# qsamy.github.io
